@@ -5,7 +5,7 @@ The Recovery Coin Team
 
 Please Note: We are in no way affiliated with NA, AA or any other 12-step program such as these.
 
-If you would like to contribute, we are a very small team with limited experience to go around.  All help is very much appreciated!  Please contact us at stevenmlees@me.com
+If you would like to contribute, we are a very small team with limited experience to go around.  All help is very much appreciated!  Please contact me at admin@blockchainrecovery.org
 
 We have also Purchased our new Domain! I was able to scrape together the neccesary funds, praise the lord.
 
