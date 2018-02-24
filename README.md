@@ -6,3 +6,9 @@ The Recovery Coin Team
 Please Note: We are in no way affiliated with NA, AA or any other 12-step program such as these.
 
 If you would like to contribute, we are a very small team with limited experience to go around.  All help is very much appreciated!  Please contact us at stevenmlees@me.com
+
+We have also Purchased our new Domain! I was able to scrape together the neccesary funds, praise the lord.
+
+RecoveryCoin official domain is now: https://blockchainrecovery.org
+
+As always, to help out with our project, we are looking for anyone, bloggers to get the word out, etc. if you have done anything related to creating a coin and the wallet that will hold the coins, please contact us.
