@@ -17,3 +17,5 @@ As always, to help out with our project, we are looking for anyone, bloggers to 
 07/08/18 - Added Member to Development team!
 Whitepaper business outline coming soon!
 
+09-19-2018 - Almost have the Website complete, proceeding to map out advertising and strategy for financial backing and crowdfunding sources and the paperwork for registering as a non-profit organization in the state of Rhode Island.
+
